@@ -1,5 +1,4 @@
 # Bytom-poniedzialek
 
-hehe
+i tak tego nikt nie czyta
 
-edit2
